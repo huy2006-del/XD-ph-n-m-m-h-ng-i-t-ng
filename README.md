@@ -1,1 +1,1 @@
-# XD-ph-n-m-n-h-ng-i-t-ng
+# XD phần mềm hướng đối tượng
